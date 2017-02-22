@@ -15,7 +15,7 @@ Clarion Heard's Resume
  
 * **Maine Coast Semester**, The Chewonki Foundation, Wiscasset, ME _Spring 2007_
 
-###WORK and TEACHING POSITIONS
+###WORK AND TEACHING POSITIONS
 * **The Field School**, High School Math Teacher _Washington, DC; 2013-present_  
  * Taught Pre-Algebra, Algebra I, Geometry, and Pre-Calculus classes to 7th through 12th graders  
  * Re-designed curricula to focus on student-based learning and emphasize discovery through hands-on projects
