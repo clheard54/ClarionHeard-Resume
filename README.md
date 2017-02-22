@@ -26,7 +26,7 @@ Clarion Heard's Resume
  * Offered test-taking strategies aimed at helping students improve scores on standardized tests and college entrance exams
  
 * **Willing Workers on Organic Farms (WWOOF)**, Volunteer farmer _Various locations, 2010-2011, 2015_  
- *Green Fire Farm and Vineyards (Arcata, CA), Montezuma Canyon Ranch and Vineyards (Monticello, UT), Carrizo Lavender Farm (Carrizo Plains, CA), Lieby’s Homestead (Annapolis, CA)
+ * Green Fire Farm and Vineyards (Arcata, CA), Montezuma Canyon Ranch and Vineyards (Monticello, UT), Carrizo Lavender Farm (Carrizo Plains, CA), Lieby’s Homestead (Annapolis, CA)
  
 * **Brown University Curricular Resource Center**, Academic Tutor & Writing Fellow _Providence, RI; 2009-2010, 2011-2013_  
  * Organized and ran weekly group tutoring sessions for calculus, linear algebra and biology students  
@@ -53,4 +53,4 @@ Clarion Heard's Resume
 * Interests: Archery, cryptography, technical theatre (lighting design), piano, juggling, creative writing.
 * The card game SET. Let's play.
 
-#####REFERENCES AVAILABLE UPON REQUEST
+###REFERENCES AVAILABLE UPON REQUEST
