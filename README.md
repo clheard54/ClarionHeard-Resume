@@ -25,21 +25,32 @@ Clarion Heard's Resume
  * Worked one-on-one with students in Pre-Algebra, Geometry, and Calculus to solidify understanding of material and to provide problem-solving support  
  * Offered test-taking strategies aimed at helping students improve scores on standardized tests and college entrance exams
  
- * **Brown University Curricular Resource Center**, Academic Tutor & Writing Fellow _Providence, RI; 2009-2010, 2011-2013_  
+* **Willing Workers on Organic Farms (WWOOF)**, Volunteer farmer _Various locations, 2010-2011, 2015_  
+ *Green Fire Farm and Vineyards (Arcata, CA), Montezuma Canyon Ranch and Vineyards (Monticello, UT), Carrizo Lavender Farm (Carrizo Plains, CA), Lieby’s Homestead (Annapolis, CA)
+ 
+* **Brown University Curricular Resource Center**, Academic Tutor & Writing Fellow _Providence, RI; 2009-2010, 2011-2013_  
  * Organized and ran weekly group tutoring sessions for calculus, linear algebra and biology students  
  * Helped students review class material and notes, and provided practice problems to work through  
  * Peer-edited college course papers: Provided revision advice and feedback on argumentation, analysis, organization, and clarity of papers  
 
-
-* **Brown University Third World Center**, Minority Peer Counselor Friend Providence, RI; 2009-2010, 2011-2013  
- * Designed and facilitated workshops to promote discussion of issues surrounding race, gender, and class  
- * Launched initiatives to promote diversity and understanding across difference in the wider Brown community; provided and advocated for support to minority students
- 
-
 ###MENTORING AND LEADERSHIP EXPERIENCE
-Providence Youth Student Movement (PrYSM), Volunteer mentor and tutor Providence, RI; 2011-2013
-Algebra in Motion, Math tutor at Hope High School Providence, RI; 2012-2013
+* **Brown Ledge Camp**, Summer camp counselor _Colchester, VT; summers 2008-present_  
+ * Worked as an archery counselor at an all-girls sleep-away camp, running the range and offering campers (ages 9-16) an introduction to the sport of archery.  
+ * Taught beginner shooters safety rules, care of equipment, and the basics of shooting. Helped advanced shooters improve technique and competition strategies. Coached the archery team, and organized in-camp and inter-camp tournaments.
+ 
+* **Brown University Third World Center**, Minority Peer Counselor Friend _Providence, RI; 2009-2013_  
+ * Developed and facilitated the freshmen orientation program Third World Transition Program to introduce students to the concepts of privilege, multicultural competency, and social justice  
+ * Designed and ran workshops that explored the -isms and promoted discussion of issues surrounding race, gender, and class  
+ * Launched initiatives to promote diversity and understanding across difference in the wider Brown community; advocated for and provided support to minority students  
+ 
+* **The Next Thing**, Facilitator _Providence, RI; 2009-2010_  
+ * Facilitated a discussion group to provide support and create a safe space for queer students of color at Brown University  
+ * Collaborated with Queer Alliance and LGBTQ Resource Center to put on events meant to educate and ensure a safe environment for queer students at Brown.
 
 ###SKILLS AND INTERESTS
+* Proficient in iWork and Microsoft Office  
+* Language skills: Latin (advanced reading); Chinese (basic speaking, reading traditional characters)
+* Interests: Archery, cryptography, technical theatre (lighting design), piano, juggling, creative writing.
+* The card game SET. Let's play.
 
 #####REFERENCES AVAILABLE UPON REQUEST
