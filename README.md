@@ -39,7 +39,7 @@ Clarion Heard's Resume
 ###MENTORING AND LEADERSHIP EXPERIENCE
 * **The Field School**, Multicultural Critical Friends Group Leader, _Washington, DC; 2015-present_
  * Created and implemented protocols to lead faculty and staff members in discussions concerning multicultural competency in teaching practice  
- * Facilitated CFG-style meetings to provide feedback on how to deal with touchy situations regarding the core eighter identifiers (race, class, gender, etc.)
+ * Facilitated CFG-style meetings to provide feedback on addressing touchy situations regarding the core eight identifiers (race, class, gender, etc.)
  
 * **Brown Ledge Camp**, Summer camp counselor _Colchester, VT; summers 2008-present_  
  * Worked as an archery counselor at an all-girls sleep-away camp, running the range and offering campers (ages 9-16) an introduction to the sport of archery.  
