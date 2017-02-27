@@ -28,12 +28,19 @@ Clarion Heard's Resume
 * **Willing Workers on Organic Farms (WWOOF)**, Volunteer farmer _Various locations, 2010-2011, 2015_  
  * Green Fire Farm and Vineyards (Arcata, CA), Montezuma Canyon Ranch and Vineyards (Monticello, UT), Carrizo Lavender Farm (Carrizo Plains, CA), Lieby’s Homestead (Annapolis, CA)
  
-* **Brown University Curricular Resource Center**, Academic Tutor & Writing Fellow _Providence, RI; 2009-2010, 2011-2013_  
+* **Brown University Curricular Resource Center**, Academic Tutor _Providence, RI; 2009-2010, 2011-2013_  
  * Organized and ran weekly group tutoring sessions for calculus, linear algebra and biology students  
- * Helped students review class material and notes, and provided practice problems to work through  
- * Peer-edited college course papers: Provided revision advice and feedback on argumentation, analysis, organization, and clarity of papers  
+ * Helped students review class material and notes and provided practice problems to work through  
 
+* **Brown University Writing Center**, Writing Fellow _Providence, RI; 2011-2013_  
+ * Peer-edited freshmen seminar papers: Conferenced with mentees to discuss writing techniques and editing strategies  
+ * Provided revision advice and feedback on argumentation, analysis, organization, and clarity of papers  
+ 
 ###MENTORING AND LEADERSHIP EXPERIENCE
+* **The Field School**, Multicultural Critical Friends Group Leader, _Washington, DC; 2015-present_
+ * Created and implemented protocols to lead faculty and staff members in discussions concerning multicultural competency in teaching practice  
+ * Facilitated CFG-style meetings to provide feedback on how to deal with touchy situations regarding the core eighter identifiers (race, class, gender, etc.)
+ 
 * **Brown Ledge Camp**, Summer camp counselor _Colchester, VT; summers 2008-present_  
  * Worked as an archery counselor at an all-girls sleep-away camp, running the range and offering campers (ages 9-16) an introduction to the sport of archery.  
  * Taught beginner shooters safety rules, care of equipment, and the basics of shooting. Helped advanced shooters improve technique and competition strategies. Coached the archery team, and organized in-camp and inter-camp tournaments.
