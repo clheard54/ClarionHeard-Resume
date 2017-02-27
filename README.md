@@ -1,9 +1,6 @@
-# ClarionHeard-Resume
-Clarion Heard's Resume
-
 #Clarion Heard  
 ####3926 Military Road NW Washington, DC 20015. (202)297-2536. Clarion.Heard@gmail.com
-
+______________________________________________________________________________________
 ###EDUCATION
 * **Brown University**, Gender & Sexuality Studies B.A. _Providence, RI, 2013_  
  * Cumulative GPA: 4.1; Honors: National Merit Scholar; _summa cum laude_
