@@ -16,14 +16,15 @@ ________________________________________________________________________________
 * **The Field School**, High School Math Teacher _Washington, DC; 2013-present_  
  * Taught Pre-Algebra, Algebra I, Geometry, and Pre-Calculus classes to 7th through 12th graders  
  * Re-designed curricula to focus on student-based learning and emphasize discovery through hands-on projects
- * Employed diverse teaching strategies to individually reach students of varying levels of ability and interest
+ * Employed diverse teaching strategies to reach individual students of varying levels of ability and interest
 
 * **Independent Tutor**, Mathematics and SAT/ACT preperation _Washington, DC; June-present_  
  * Worked one-on-one with students in Pre-Algebra, Geometry, and Calculus to solidify understanding of material and to provide problem-solving support  
  * Offered test-taking strategies aimed at helping students improve scores on standardized tests and college entrance exams
  
 * **Willing Workers on Organic Farms (WWOOF)**, Volunteer farmer _Various locations, 2010-2011, 2015_  
- * Green Fire Farm and Vineyards (Arcata, CA), Montezuma Canyon Ranch and Vineyards (Monticello, UT), Carrizo Lavender Farm (Carrizo Plains, CA), Lieby’s Homestead (Annapolis, CA)
+ * Green Fire Farm and Vineyards (Arcata, CA), Montezuma Canyon Ranch and Vineyards (Monticello, UT), Carrizo Lavender Farm (Carrizo Plains, CA), Lieby’s Homestead (Annapolis, CA)  
+ * Tasks included caring for honeybees; cleaning lavendar bud; tapping a maple sugar bush; tending a three-varietal vineyard; maintaining a drip irrigation system; and harvesting ground crops for market 
  
 * **Brown University Curricular Resource Center**, Academic Tutor _Providence, RI; 2009-2010, 2011-2013_  
  * Organized and ran weekly group tutoring sessions for calculus, linear algebra and biology students  
@@ -36,10 +37,11 @@ ________________________________________________________________________________
 ###MENTORING AND LEADERSHIP EXPERIENCE
 * **The Field School**, Multicultural Critical Friends Group Leader, _Washington, DC; 2015-present_
  * Created and implemented protocols to lead faculty and staff members in discussions concerning multicultural competency in teaching practice  
- * Facilitated CFG-style meetings to provide feedback on addressing touchy situations regarding the core eight identifiers (race, class, gender, etc.)
+ * Facilitated CFG-style meetings to provide feedback on addressing touchy situations regarding the core eight identifiers (race, class, gender, etc.)  
+ * Served on a committee dedicated to thinking about how to bring social justice issues into the classroom across disciplines, and how to appropriately promote or support advocacy work with students
  
 * **Brown Ledge Camp**, Summer camp counselor _Colchester, VT; summers 2008-present_  
- * Worked as an archery counselor at an all-girls sleep-away camp, running the range and offering campers (ages 9-16) an introduction to the sport of archery.  
+ * Worked as an archery counselor at an all-girls sleep-away camp, running the range and offering campers (ages 9-16) an introduction to the sport of archery  
  * Taught beginner shooters safety rules, care of equipment, and the basics of shooting. Helped advanced shooters improve technique and competition strategies. Coached the archery team, and organized in-camp and inter-camp tournaments.
  
 * **Brown University Third World Center**, Minority Peer Counselor Friend _Providence, RI; 2009-2013_  
